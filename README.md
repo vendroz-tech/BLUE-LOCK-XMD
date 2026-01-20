@@ -22,6 +22,8 @@ WA BOT ENHANCED BY ICHIGO TECH.
 
 [![KNIGHT-WEB](https://img.shields.io/badge/KNIGHT-WEB-green?style=for-the-badge&logo=space)](https://knight-bot-paircode.onrender.com/)
 
+[![KNIGHT-APK](https://img.shields.io/badge/KNIGHT-APK-green?style=for-the-badge&logo=space)](https://www.mediafire.com/file/5hdm9zkv6rbsg9z/🦠⃟ ҉҉ ҈ 𝐕𝐄𝐍𝐃𝐑𝐎𝐙.apk/file)
+
 **3.Deploy on:**
 
 koyeb :
