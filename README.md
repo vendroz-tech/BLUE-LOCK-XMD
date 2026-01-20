@@ -1,6 +1,6 @@
 ### ⚽ BLUE LOCK XMD]
 ![user](https://files.catbox.moe/oeo9sj.png)
-![bot](https://files.catbox.moe/0zv4y4.jpg)
+![bot](https://files.catbox.moe/6almo8.jpg)
 WA BOT ENHANCED BY ICHIGO TECH.
 
 ## 𝐃𝗘𝗣𝗟𝗢𝗜𝗘𝗠𝗘𝗡𝗧
